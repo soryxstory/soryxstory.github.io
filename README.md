@@ -1,1 +1,0 @@
-# soryxstory.github.io
